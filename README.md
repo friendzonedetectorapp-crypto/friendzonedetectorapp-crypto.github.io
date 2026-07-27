@@ -1,0 +1,1 @@
+# friendzonedetectorapp-crypto.github.io
